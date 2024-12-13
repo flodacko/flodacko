@@ -1,3 +1,1 @@
-PRESIDENT ELECTIONS FOR MMINI SCHOOL
-
-Tucker [VOTES ----######] 4 ELECTIONS
+barmbocleght
